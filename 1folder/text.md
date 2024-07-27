@@ -1,6 +1,0 @@
-# notes
-
-jhbjbkjnlkmll
-```
-bkkbkb kk
-```
